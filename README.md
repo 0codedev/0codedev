@@ -148,6 +148,6 @@ As an **Agentic Systems Architect**, I design system topologies, establish state
 ---
 
 **Reach Out & Connect:**  
-📧 `gaddasudhanshu0@gmail.com` · 🌐 [wealthos-sudhanshu.xyz](https://wealthos-sudhanshu.xyz) · 📍 NIT Warangal, Telangana, India
+📧 `gaddasudhanshu@gmail.com` · 🌐 [wealthos-sudhanshu.xyz](https://wealthos-sudhanshu.xyz) · 📍 NIT Warangal, Telangana, India
 
 </div>
